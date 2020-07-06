@@ -1,3 +1,3 @@
-# arthitaghosh.com
+# arthitaghosh.xyz
 
-For more details, visit <a href="http://deshraj.xyz">http://arthitaghosh.com</a>
+For more details, visit <a href="http://arthitaghosh.xyz">http://arthitaghosh.xyz</a>
